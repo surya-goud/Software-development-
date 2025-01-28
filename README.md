@@ -7,7 +7,8 @@
 presonalized recpmmendations-surya prakash
 payment portal- akshith
 publishing -sarojini
-ranjith -
-nasir-
-nadeem-
+networking- ranjith
+ flexibility-nasir
+prioritization-nadeem
+personalized recommendation- surya prakash
 
