@@ -4,5 +4,10 @@
 
 
 ##Subtitles
-1.presonalized recpmmendations-surya prakash
+presonalized recpmmendations-surya prakash
+payment portal- akshith
+publishing -sarojini
+ranjith -
+nasir-
+nadeem-
 
